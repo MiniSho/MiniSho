@@ -1,4 +1,4 @@
-### Hi there ，I'm Sho！👋
+### Hi, I'm Sho！👋
 
 
 - 🔭 I’m currently studying at Tsinghua University
